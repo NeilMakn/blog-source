@@ -2,4 +2,4 @@ Title: Contact
 
 Email: nmaknarakham @ gmail dot com
 
-Resume: [Resume](https://db.tt/mpzvjV4N)
+Resume: [Resume](https://dl.dropboxusercontent.com/u/31365123/neilmakn_resume.pdf)
